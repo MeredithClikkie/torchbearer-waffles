@@ -1,0 +1,148 @@
+---
+layout: post
+title: spiritual warfare and cultural ptsd
+---
+
+Atrocious acts of violence, sadly, occur every day. A novice understanding of cultural PTSD theory provides insight into how and why these horrific acts of violence continue. An awareness of the consequential effects that sin and trauma impose upon humanity individually and culturally, due to God's allowance of evil, results in an increased cognizance of the signs of cultural PTSD in ourselves and others. This will result in an improvement in the mental health of the individual and cultural level, and ultimately a strengthening of our relationship with Christ and others.
+
+Intro
+
+Cultural PTSD refers to the trauma carried by communities due to systemic violence, oppression, colonization, and generational harm. It’s not just psychological — it’s symbolic, spiritual, and embodied. Behavioral health expert, Natasha Bonner, puts it this way, "cultural trauma happens when members of a group experience a horrendous event that affects their community for years to come... It colors their memories and changes their identity going forward in fundamental ways.0.5” No culture is immune to trauma; however, some experience trauma on a much deeper level. 
+
+While cultural factors can be a positive resource contributing to safety and well-being, they also can be a basis for placing the person, group, or entire community or population in harm’s way or at heightened risk of developing PTSD.0.6 The outcome of those in harm's way is contingent upon the cultural support system in place, and the ability of the individuals within the culture to evaluate the cause underlying their offensiveness as well as defensiveness.
+
+Such an evaluation can pinpoint the culture's role in the power and control dynamic. Are they inflicting harm on others, or are they the afflicted? While every culture will have outliers and people that thrive despite difficulties, or sink despite being given every opportunity, the culture will generally have a leaning towards one or the other, power or control. 
+
+From the Christian lens, violence is not just a moral failing — it’s a theological rupture. The Christian tradition, especially through trauma-informed theology, recognizes this as a rupture in the divine image in humanity — the imago Dei. It disrupts the image of God in both victim and perpetrator.1
+
+This rupture is evident throughout Scripture. A recurring theme throughout Scripture is man choosing to do what is right in their own eyes and blaming God for the consequences. God is just in his punishment, as severe as it is. He also graciously and continuously preserves a remnant throughout history, despite humanity's habitual failings. Doing what we want to do despite knowing it is not what's best for us is both rebellious and mental.
+
+The acknowledgment alone, that mental illness is a spiritual problem and a result of living in a fallen world does not fix the trauma that church members experience culturally or individually. Saying all the right things does not help either. It leaves people who struggle with PTSD feeling ‘less than’. What does help is meeting people where they are. The real answer is to stay in God’s word, to genuinely be the church -- God’s hands and feet, and to continually give burdens to God through prayer and hopefully with one another.
+
+What is Cultural PTSD?
+
+Cultural PTSD arises from historical and ongoing oppression, which leaves communities with a fragmented identity, inherited grief and mistrust, disrupted rituals and spiritual frameworks, and distinction from dominant institutions. When this trauma goes unacknowledged by legal, medical, and educational systems, as it often does, it only reinforces the wound.
+
+PTSD in individuals is a serious disorder that often gets worse over time if untreated, unlike some other disorders, which tend to dissipate over time. The same is true of PTSD at the cultural level. In the US, the extreme difficulties on the collective level with constant conflict, oppressive and coercive attempts by some to maintain power and control, are not an accident. It is a result of our cultural illness getting worse.
+
+Cultural PTSD Dynamics
+
+Power and control are normal needs.
+
+Trauma is about loss of control.
+
+Trauma leaves us uneasy with vulnerability.
+
+Any “threat” of a loss of power gets confused with survival needs.
+
+Oppression as normal power and control needs go awry.
+
+Limbic systems’ (“fight or flight” reactions) are triggered by cultural contexts.
+
+Common symptoms of PTSD manifest themselves in the persistent friction that exists between various political groups, for example. When looking at cultural level assumptions related to power, control, safety, and distrust with even a slightly different perspective, the source of the friction between differing belief systems begins to make a little more sense. The lack of introspection within individual cultures and the lack of accountability of the abuse of power and control on both sides continually fuels the frenzy of cultural illness.5 (See: The Outline).
+
+Six Points of Cultural PTSD:
+
+Human history abounds with trauma.
+
+The extent and impact of our historical cultural trauma is not currently recognized.
+
+We have, at the cultural level, formed assumptions, beliefs, and attitudes that very closely resemble common maladaptive responses that individuals have to trauma.
+
+PTSD, by definition, can and does seriously impair people’s abilities to reason, function, and cooperate with others at productive levels.
+
+PTSD of any sort is treatable.
+
+We need to recognize our symptoms and treat ourselves in order to recover from Cultural PTSD.5
+
+Cultural vs Societal Trauma
+
+The biggest difference between cultural and collective trauma, which is at times used interchangeably with societal trauma, is that cultural trauma affects a subset of the population that’s been targeted because of who they are. Collective or societal trauma, on the other hand, is a horrific event that affects society as a whole. Cultural and collective trauma are often connected.0.5
+
+PTSD is generally perceived to be individualistic in nature, not collective. The societal tendency to recognize mental health as a "you" problem, not an "us" problem (if mental health is recognized at all), is toxic, ignorant, and destructive to any attempt at societal, cultural intervention of ethnocentric, power, and control-imposed oppression.
+
+The idealism of the American individualistic culture causes dissension between human connection and relations with one another, resulting in tunnel vision. Individualism prevents individuals from looking outside themselves. This hinders the ability to see the big picture of how culture needs to heal as a whole from trauma that is deeply entangled with generational trauma. Cultural trauma acts as a root system that nourishes and intensifies generational trauma — shaping not just what is passed down, but how it’s encoded, interpreted, and lived.
+
+Cultural identity generally takes second place to an individualistic identity in American society. When a person perceives the world with an " it is me vs. the world" mentality, when indeed the trauma response is due to culture, the source of the individual's trauma response is not connected to the bigger problem, cultural oppression. The lack of recognition that the individual is not experiencing the cultural trauma alone escalates the individual trauma and creates dissension not only within society but also within one's own culture.
+
+Postmodernism
+
+Postmodernism is a coping mechanism for cultural PTSD. Both are responses to rupture, fragmentation, and a perceived collapse of grand narratives. Where cultural PTSD reflects the collective trauma of a society (from colonization, war, systemic betrayal), postmodernism becomes the philosophical language that tries to make sense of that rupture.1.3 
+
+This perceived collapse of grand narratives when weighed against God’s Word is straightforward, it is due to the rebellious human nature. When humanity fails to recognize that the problem lies within themselves, the ability to make sense of trauma and evil becomes incredibly difficult. Sadly, when postmodernism is viewed as the answer, absolute truth is lost, and so is the ability to know that we can know anything about reality. 
+
+Postmodernism is "post" because it denies the existence of any ultimate principles, and it lacks the optimism of there being a scientific, philosophical, or religious truth which will explain everything for everybody - a characteristic of the so-called "modern" mind. The paradox of the postmodern position is that, in placing all principles under the scrutiny of its skepticism, it must realize that even its own principles are not beyond questioning. 
+
+As the philosopher Richard Tarnas states, postmodernism "cannot on its own principles ultimately justify itself any more than can the various metaphysical overviews against which the postmodern mind has defined itself."0.9 It is simply a belief system that collapses within itself. 
+
+Trauma Manifested as Hate
+
+Three lessons of trauma studies: (1) The past is not in the past; (2) The body remembers, and (3) The wounds do not simply go away.Trauma for some is a “wound that won’t go away”, one that lingers in the body, memory, and spirit. 
+
+Psychological trauma is not a new phenomenon. The term trauma is a modern way of describing how violence impacts us psychologically and emotionally, or a wound of the psyche. Sigmund Freud noted that veterans of World War I were reliving the violence they endured in the war in the present. The trauma is felt, not just recalled. That observation revolutionized existing theories of the 19th century; trauma responses exist independently of time and experience.2
+
+For individuals who are subjected to cultural trauma throughout their lives, the amount of aftershocks are never-ending. The understanding of the personal and communal characteristics that reflect ethnocultural, national, gender, age, and disability factors is crucial in defining the identity of every human being. The stigma, discrimination, or socioeconomic disadvantage associated with cultural identity compounds the effect of traumatic stressors and can be traumatic in and of itself.3.1
+
+People and cultures on the receiving end of trauma tend to inflict it upon others. Hardened criminals that commit vicious crimes, likened to the recent assassination of conservative political activist Charlie Kirk and the ruthless, stabbing of the 23-year-old Ukrainian refugee,  Iryna Zarutskaon on a train in my hometown, Charlotte, assuredly had not lived a trauma-free life. The motives behind crimes like these if not driven by mental illness alone, are likely fueled by race, religion, politics, in combination with mental illness. What is clear is that the overarching motive is hate. 
+
+Hate, whether it was passed on to the criminals on an individual or cultural level, is a response, not a core emotion. It’s shaped by fear, anger, stress, and especially social conditioning. Unlike instinctive emotions, hate develops through experience, cultural narratives, and group dynamics. Hate often flourishes in environments of division, misinformation, and perceived threat, especially when people feel powerless or overwhelmed.2.5  
+
+Until societies, cultures, and individuals address how the power and control dynamic society imposes upon cultures and subsequently the individuals within them, and attribute societies as one of the main causes of the mental illness pandemic and resulting PTSD that fuels the increasingly prevalent senseless violence that is only escalating the issue, then nothing is going to change for the better. 
+
+Societal Healing
+
+Society can begin the healing process with a multi-faceted approach. Culturally sensitive mental health services that are put in place train clinicians in cultural competence to recognize trauma experiences that differ across communities, and adapt therapies to include spiritual, communal, and ancestral frameworks.2.6
+
+A second approach to societal healing is to implement educational institutions that honor history through teaching accurate trauma-informed history, including colonization, genocide, slavery, and displacement. When issues that cause trauma are not addressed, it leaves the afflicted culture with an ever-lasting itch for validation. This suppression of factual history is worsening the dissension between cultures and their relationship to society. 
+
+One more approach is to promote rituals of remembrance and reconciliation that create safe public spaces for mourning, ceremony, and memorials that honor the wounded past. This establishes a greater cultural unity as well as a healthier support system. When individuals within a culture experience support, faith in humanity increases. This provides more empathy for people inside and outside of their culture.
+
+The Christian Lens
+
+The Gospel narratives emphasize that each Gospel provides a unique account of how Jesus’ followers respond to the trauma of his crucifixion. The resurrection appearances often begin with the disciples not knowing or not recognizing him. For readers attuned to trauma, the scenes of loss, mourning, confusion, and initial doubt of seeing Jesus post-resurrection in the Gospels are significant, not incidental. They provide models by which contemporary Christians can grapple with their own experiences.
+
+The following explanation from gotquestions.org aids in the understanding of God's allowance of evil:
+
+"We live in a real world where our good and evil actions have direct consequences and indirect consequences upon us and those around us. God’s desire is that for all of our sakes we would obey Him that it might be well with us (Deuteronomy 5:29). Instead, what happens is that we choose our own way, and then we blame God for not doing anything about it. Such is the heart of sinful man. But Jesus came to change men’s hearts through the power of the Holy Spirit, and He does this for those who will turn from evil and call on Him to save them from their sin and its consequences (2 Corinthians 5:17). God does prevent and restrain some acts of evil. This world would be MUCH WORSE were God not restraining evil. At the same time, God has given us the ability to choose good and evil, and when we choose evil, He allows us, and those around us, to suffer the consequences of evil."3 (Why God allows evil).
+
+Those who suffer from PTSD from any experience should recognize that treatment will take time, and that is okay. Some have compared this to Paul’s "thorn in the flesh" (2 Corinthians 12:7–10). God does offer healing, but in the way and the timing He sees fit. In the meantime, He gives sufficient grace to bear up under hardships. Thorns are painful, and PTSD is certainly a big thorn. But we can continue to go to God and remind ourselves of His faithfulness (Lamentations 3; 1 Corinthians 1:4–9).
+
+A community of support is vital. Believers are called to “Carry each other’s burdens, and in this way you will fulfill the law of Christ” (Galatians 6:2). This includes loving and caring for those with PTSD in our midst. Providing love and support to someone through PTSD can be challenging. It can feel overwhelming to hear about the trauma. Or it may seem to us that progress is not happening fast enough.5.1
+
+As overwhelming as it may be to hear about the trauma, be empathetic, think how overwhelmed the person is living in their bodies continually dealing with their trauma responses assuredly inflicting great frustration and exhaustion. Even if we have nothing to say, just by having a listening ear and knowing that someone knows their story,  and what they struggle with can make a huge difference in the incessant internal struggle the trauma has inflicted upon them.
+
+In Summary:
+
+Common factors that play a part in determining the existence or extent of the trauma response include the cultural environment, whether there is a support system put in place, and length of the trauma endured.
+
+St. Irenaeus, who studied under St. Polycarp, a disciple of John the Apostle advocated that the real problem of our suffering is that in the midst of it we cannot see the loving gaze of God upon us.6 This can be true for believers and non-believers alike. While humanity has been beaten on the individual and cultural level, Christ was beaten to death to take on the effects that sin and trauma have inflicted upon us.
+
+Dwelling on the fact that Jesus suffered horrific abuse, more than we can imagine, and did so due to his incredible love for all of us, is the greatest therapy offered. As noted above, each culture and individual has a different trauma response. I am not minimizing the effects that PTSD and trauma (on any and all levels) impose upon humanity, not at all, I certainly have my struggles; I'm stating that when we are stuck in a cycle of grasping for help any and every where we can and seem unable to receive it, that we need to become cognizant that throughout it all, Jesus is lovingly gazing upon us with open arms. He understands our pain because he has experienced it all.
+
+Sources:
+
+0.5 https://bcbstwelltuned.com/2022/09/26/what-is-cultural-trauma-the-difference-between-collective-trauma-cultural-trauma/
+
+0.6 https://pmc.ncbi.nlm.nih.gov/articles/PMC7149881/
+
+0.9 https://www.pbs.org/faithandreason/gengloss/postm-body.html
+
+1 https://cct.biola.edu/spiritual-care-violence-growing-trauma-lived-theology/
+
+1.3 https://www.mdpi.com/2076-0787/13/5/132
+
+2 https://www.christiancentury.org/critical-essay/how-christian-theology-and-practice-are-being-shaped-trauma-studies
+
+2.5 https://www.psychologytoday.com/us/blog/common-sense-science/202502/why-do-we-hate
+
+2.6 https://satoribh.com/cultural-sensitivity-in-ptsd-treatment-approaches/
+
+3  https://www.gotquestions.org/God-allow-evil.html
+
+3.1 https://pmc.ncbi.nlm.nih.gov/articles/PMC7149881/
+
+5 https://culturalptsd.org/the-outline/
+
+5.1 https://www.gotquestions.org/Bible-PTSD.html
+
+6 https://www.1517.org/articles/church-fathers-st-irenaeus-of-lyon-champion-of-the-incarnation
