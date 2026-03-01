@@ -1,0 +1,29 @@
+title: "Mountain Waffles" 
+email: msmithclikkie@gmail.com  
+description: >- # this means to ignore newlines until "baseurl:
+  Snapback 
+remote_theme: pages-themes/minimal@v0.2.0
+
+permalink: /:title/
+baseurl: "" # the subpath of your site, e.g. /blog
+url: "https://torchbearer.mountainwaffles.com" # the base hostname & protocol for your site, e.g. http://example.com
+
+# This ensures the build isn't skipping your posts
+collections:
+  posts:
+    output: true
+
+# To show the buttons (Current state)
+show_downloads: true
+
+plugins:
+  - jekyll-gist
+  - jekyll-remote-theme
+
+footer_links:
+  - title: Main Blog
+    url: https://mdawg1981-tjlhe.wordpress.com
+  - title: BreachLab
+    url: https://breachlab.mountainwaffles.com
+  - title: Medium
+    url: https://medium.com/@ending_glosses26.com
